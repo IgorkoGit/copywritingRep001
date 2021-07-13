@@ -1,1 +1,1 @@
-# copywritingRep001
+# examples copywriting and rewriting 
